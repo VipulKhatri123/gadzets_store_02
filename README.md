@@ -1,0 +1,1 @@
+# gadzets_store_02
